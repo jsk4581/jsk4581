@@ -1,1 +1,1 @@
-## Junseo Koo, GCU, SWDM
+## Junseo Koo, GCU, AI/SW
